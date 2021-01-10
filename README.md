@@ -9,4 +9,4 @@
 - 💬 Ask me about umm pretty much a noob so dont.
 - 📫 How to reach me: kzoepa@gmail.com  shoot me an email
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: My country's population is 700-800k
+- ⚡ Fun fact: One of wiki Project Bhutan's top contributor.
